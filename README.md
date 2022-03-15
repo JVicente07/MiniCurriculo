@@ -1,2 +1,0 @@
-# MiniCurriculo
-# MiniCurriculo
